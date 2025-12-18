@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently pursuing Bachelor of Science in Information Technology (BSc IT) at Lovely Professional University. I am eager to explore diverse learning experiences and deepen my knowledge in the field of Information Technology. My goal is to build a strong foundation in emerging technologies and apply my skills to real-world challenges through hands-on projects, collaborations, and intern
+I am currently pursuing Bachelor of Science in Information Technology (BSc IT) at Lovely Professional University. I am eager to explore diverse learning experiences and deepen my knowledge in the field of Information Technology. My goal is to build a strong foundation in emerging technologies and apply my skills to real-world challenges through hands-on projects, collaborations, and internships.
 
 
 ## 🌐 Socials:
